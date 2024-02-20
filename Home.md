@@ -1,0 +1,2 @@
+Welcome to the [Javad.Nazari](https://m.imdb.com/name/nm3640231) wiki!
+Iranin [Actor](https://trakt.tv/people/javad-nazari-419c80b2-5be0-49fe-8529-96046edfbdb3?sort=released,asc) and [Composer ](https://www.histar.tv/person/4288831) and Singer [Javad Nazari ](https://www.boomplay.com/artists/51741059) Born 1982-07-30 Tehran 
